@@ -1,1 +1,1 @@
-# rsschool-cv
+https://VladislavYarmusik.github.io/rsschool-cv/cv
